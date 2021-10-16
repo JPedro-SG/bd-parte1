@@ -1,3 +1,3 @@
 Primeira parte
 Participantes:
-Leandro Santana;
+Leandro Santana
